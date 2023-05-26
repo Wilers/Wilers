@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏢 Founder TaleLife & Owner TaleStore<br>🗺️ Game Designer on FiveM<br>💻 Developper FullStack on FiveM
+🏢 Owner TaleStore<br>🗺️ Game Designer on FiveM<br>💻 Developper FullStack on FiveM
 
 
 ## 🌐 Socials:
